@@ -6,7 +6,7 @@ All Ears English Episode 1-3
 
 <a href="https://www.ximalaya.com/thirdparty/player/sound/player.html?id=192810720&type=red" target="_blank">点我听音频</a>
 
-### Episode 1 Meet Your English Teachers
+## Episode 1 Meet Your English Teachers
 
 **[1] Pick up some phrases in everyday conversation.**
 pick up 表示在不知不觉中学到知识。
@@ -43,7 +43,7 @@ pick up 表示在不知不觉中学到知识。
 **[11] Feel the intimacy with the English.**
 Intimacy /ˈɪntɪməsi/ : 亲密，每天听地道英语对话，拉近你与英语的距离。
 
-### Episode 2 Interviewing in the United States
+## Episode 2 Interviewing in the United States
 
 **[12] Break down some phrases.**
 仔细分析：break down。
@@ -57,7 +57,7 @@ Intimacy /ˈɪntɪməsi/ : 亲密，每天听地道英语对话，拉近你与�
 **[15] Before we end our second episode, xxx.**
 这里的 we end 一看便知是地道英语思维。我们很少会用 end 做及物动词，比如 end a class。
 
-### Episode 3 When Should You Study English
+## Episode 3 When Should You Study English
 
 **[16] Willpower is like the muscle.**
 意志力如同肌肉，算是一个 idoim (习语)。
