@@ -5,7 +5,7 @@ All Ears English Episode 1-3
 
 **声明：本文首发于微信公众号「乌龟翻翻」，如需转载请与作者联系。**
 
-<a href="https://www.ximalaya.com/thirdparty/player/sound/player.html?id=192810720&type=red" target="_blank">点我听音频</a>
+<a href="https://www.ximalaya.com/thirdparty/player/sound/player.html?id=192810720&type=red" target="_blank">点我听音频</a> 建议使用新标签页打开音频～
 
 ## Episode 1 Meet Your English Teachers
 
